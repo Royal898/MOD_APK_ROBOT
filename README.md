@@ -44,7 +44,7 @@
 
 ◇───────────────◇
 
-- ☘️ DᕮᐯᕮᒪOᑭᕮR : [@MalithRukshan](https://t.me/About_MalithRukshan)
+- ☘️ DᕮᐯᕮᒪOᑭᕮR : [@ModsTechz](https://t.me/About_MalithRukshan)
 - [🔥 Single Developers </>](https://t.me/SingleDevelopers) Corporation ©️
 
 ◇───────────────◇
